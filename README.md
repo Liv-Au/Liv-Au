@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Liv-Au
+- 👀 I’m interested in coffee and plants
+- 🌱 I’m currently learning so much! 
+- 💞️ I’m looking to collaborate on a work project
+- 📫 How to reach me via any channel of your choice, but preferable via email or slack.
